@@ -1,2 +1,2 @@
-i just 
+ just do the next job for today 
 
